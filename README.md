@@ -4,7 +4,7 @@ _olá, seja bem vindo_
 
 **Idade**:17
 
-Estudo na escola [Nicota](https://instagam/escola.donanicota)
+Estudo na escola [Nicota](https://instagram/escola.donanicota/)
 
 ➘
 
