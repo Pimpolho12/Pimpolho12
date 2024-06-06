@@ -4,7 +4,7 @@ _olá, seja bem vindo_
 
 **Idade**:17
 
-Estudo na escola ➡︎ [Nicota](istragam/escola,donanicota).
+Estudo na escola[Nicota](istragam/escola,donanicota).
 
 ➘
 
